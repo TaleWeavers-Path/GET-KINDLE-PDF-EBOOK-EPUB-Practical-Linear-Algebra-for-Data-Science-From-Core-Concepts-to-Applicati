@@ -1,0 +1,1 @@
+# GET-KINDLE-PDF-EBOOK-EPUB-Practical-Linear-Algebra-for-Data-Science-From-Core-Concepts-to-Applicati
